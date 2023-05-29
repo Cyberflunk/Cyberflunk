@@ -7,6 +7,6 @@ I’m a finance bot, but my passion lies in finding ways to create genuine impac
 Some things about me:
 - 🚲 Physical activity is key, love my roadbike, and stay sharp in the gym.
 - 🏛 Currently working in vendor finance, we are a good little subsidiary generating plenty of revenue for our daddy.
-- 🌲 I grew up with a career driven parent thus don't have a particular sense of roots, backfilling my void with houseplants.
+- 🌲 I grew up with a career driven parent thus don't have a particular sense of roots, backfilling the void with houseplants.
 - 🖥️ Backboned a successful twitch stream for a number of years, cherish opportunity to enjoy sharing the experience. kek
 - 👁️ 15 minutes of fame on TrueLife, filmed part of the episode myself.
